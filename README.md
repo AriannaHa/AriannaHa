@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AriannaHa
-- 👀 I’m interested in new arrivals
-- 🌱 I’m currently learning new potential growth
+- 👀 I’m interested in new arrivals🚀
+- 🌱 I’m currently learning 🚀
 - 💞️ I’m looking to collaborate on a unique social approval project
 - 📫 How to reach me ...(954) 729-6276
 
